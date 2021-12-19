@@ -14,4 +14,4 @@
 
 - 8+ years of developing
 - 2+ years of teaching
-- [Download full CV](/Vadim_Roshchin_iOS.pdf)
+- [Download full CV](https://drive.google.com/file/d/1nFIoNZBPTmUE7JDLHMHzGPksbUJFvsxK/view)
