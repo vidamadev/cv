@@ -1,2 +1,0 @@
-# cv
-iOS Developer CV
